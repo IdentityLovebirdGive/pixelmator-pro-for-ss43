@@ -1,4 +1,4 @@
-# 
+# Inkscape for macOS secure Extension: batch processing & typography tools is the best Inkscape for macOS extension, featuring batch processing and typography tools. Safe,
 
 
 
